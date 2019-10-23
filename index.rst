@@ -178,8 +178,8 @@ Fracture - 2003
 When Ted Crawford discovers that his beautiful younger wife, Jennifer,
 is having an affair, he plans her murder--the perfect murder.
 
-City Of God ("Cidade de Deus") - 2003
-^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
+`City Of God ("Cidade de Deus") - 2003 <https://bigboobsblowjob.com>`_
+^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
 
 Fernando Meirelles' City of God is a sweeping tale of how crime affects
 the poor population of Rio de Janeiro. Though the narrative skips around
@@ -211,8 +211,8 @@ Unforgiven - 1992
 Clint Eastwood's 1992 Oscar-winner examines the mythic violence of the
 Western, taking on the ghosts of his own star past.
 
-Hannah And Her Sisters - 1986
-^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
+`Hannah And Her Sisters - 1986 <https://bigboobsblowjob.com>`_
+^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
 
 "We try to organize our lives according to what we have read and learned
 and believed in, but our plans are lost in a tumult of emotion."
@@ -253,5 +253,6 @@ own.
 Notorious - 1946
 ^^^^^^^^^^^^^^^^
 
-A woman is asked to spy on a group of Nazi friends in South America. How
-far will she have to go to ingratiate herself with them?
+A woman `is asked to spy <https://bigboobsblowjob.com>`_ on a group of
+Nazi friends in South America. How far will she have to go to ingratiate
+herself with them?
