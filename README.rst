@@ -178,7 +178,7 @@ Fracture - 2003
 When Ted Crawford discovers that his beautiful younger wife, Jennifer,
 is having an affair, he plans her murder--the perfect murder.
 
-`City Of God ("Cidade de Deus") - 2003 <https://bigboobsblowjob.com>`__
+`City Of God ("Cidade de Deus") - 2003 <https://bigboobsblowjob.com>`_
 ^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
 
 Fernando Meirelles' City of God is a sweeping tale of how crime affects
@@ -211,7 +211,7 @@ Unforgiven - 1992
 Clint Eastwood's 1992 Oscar-winner examines the mythic violence of the
 Western, taking on the ghosts of his own star past.
 
-`Hannah And Her Sisters - 1986 <https://bigboobsblowjob.com>`__
+`Hannah And Her Sisters - 1986 <https://bigboobsblowjob.com>`_
 ^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
 
 "We try to organize our lives according to what we have read and learned
@@ -253,6 +253,6 @@ own.
 Notorious - 1946
 ^^^^^^^^^^^^^^^^
 
-A woman `is asked to spy <https://bigboobsblowjob.com>`__ on a group of
+A woman `is asked to spy <https://bigboobsblowjob.com>`_ on a group of
 Nazi friends in South America. How far will she have to go to ingratiate
 herself with them?
