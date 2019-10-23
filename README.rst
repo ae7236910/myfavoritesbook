@@ -250,8 +250,9 @@ town-and him-based on her Quaker principles of nonviolence. His deputy
 leader of the men coming to kill him, and has to make choices of her
 own.
 
-`Notorious - 1946 <https://bigboobsblowjob.com>`__
-^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
+Notorious - 1946
+^^^^^^^^^^^^^^^^
 
-A woman is asked to spy on a group of Nazi friends in South America. How
-far will she have to go to ingratiate herself with them?
+A woman `is asked to spy <https://bigboobsblowjob.com>`__ on a group of
+Nazi friends in South America. How far will she have to go to ingratiate
+herself with them?
